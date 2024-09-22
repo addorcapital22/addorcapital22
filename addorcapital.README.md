@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Addor Capita;
+- 👀 I’m interested in investment
+- 🌱 I’m currently bootstap ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me terrydouglas12345@gmail.com
+-
